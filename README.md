@@ -1,0 +1,1 @@
+Finall's official blog site
